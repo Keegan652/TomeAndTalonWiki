@@ -1,0 +1,3 @@
+[[NPCs]]
+[[Locations]]
+[[Player  Characters]]
