@@ -1,3 +1,5 @@
+[[Story So Far]]
 [[NPCs]]
 [[Locations]]
 [[Player  Characters]]
+[[Factions]]
