@@ -1,0 +1,1 @@
+Orphanage located in [[Hunters Hollow]].

@@ -1,0 +1,1 @@
+A 10 year old tiefling girl. Mischievous; claims to play tag with “the pale girl” at night.

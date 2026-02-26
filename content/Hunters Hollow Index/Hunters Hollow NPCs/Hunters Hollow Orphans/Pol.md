@@ -1,0 +1,1 @@
+A 8 year old gnome boy. Twin to [[Pip]]. Very concerned about their brother. Strang note he was almost devoid of a magic presence not notable at the time he was met as other things drew attention.

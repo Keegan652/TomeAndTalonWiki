@@ -1,0 +1,1 @@
+A 12 year old Dwarf boy. Tough and mouthy, but secretly terrified of the dark.

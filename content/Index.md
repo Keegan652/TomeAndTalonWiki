@@ -1,5 +1,5 @@
 [[Story So Far]]
 [[NPCs]]
 [[Locations]]
-[[Player  Characters]]
+[[Player  Character Note Pages]]
 [[Factions]]

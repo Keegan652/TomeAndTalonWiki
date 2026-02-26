@@ -1,0 +1,1 @@
+A 12 year old Human girl. Aspiring bard; hums the same circus tune that Jack heard. 
