@@ -1,0 +1,4 @@
+- Frost dwarf
+- Red hair
+- Assisted in building the town fountain
+- Gruff but loyal

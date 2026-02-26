@@ -1,0 +1,2 @@
+A 15 year old Dragonborn boy. Brooding; obsessed with hero stories; feels “called” to greatness.
+Sparky noticed that this child on the cusp of adulthood has intense magic presence. It was not sister or melvolent but was raw and overflowing. A natural talent. but even so Dragonborn are extremely rare outside Helmara.

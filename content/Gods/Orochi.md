@@ -1,0 +1,1 @@
+7 headed serpent god. Only god mentioned by name as of session 4.

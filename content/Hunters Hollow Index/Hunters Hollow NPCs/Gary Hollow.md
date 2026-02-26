@@ -1,0 +1,3 @@
+- Young (~18) enthusiastic ranger
+- Assistant to [[Gareth Hollow]]
+- Eager, inexperienced

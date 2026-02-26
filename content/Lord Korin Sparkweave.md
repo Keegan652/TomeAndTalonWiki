@@ -1,0 +1,2 @@
+- Niko’s father
+- Shrewd negotiator

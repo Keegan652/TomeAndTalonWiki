@@ -1,0 +1,1 @@
+A 8 year old gnome boy. Is the twin of [[Pol]]. Is currently infected with a unknown magic disease. Through some arcane deduction the party was able to asertain that the magic had a faint tinge of the divine but in a tainted way. A God was not responsible for the illness but may have been derived from something Divine.

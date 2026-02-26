@@ -1,0 +1,1 @@
+A 14 year old Half-orc boy. Gentle giant. helps Matron Elira with repairs. protects the smaller kids.
